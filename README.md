@@ -90,7 +90,7 @@ I'm currently focused on:
 I'm always open to discussions, collaborations, or just exchanging ideas. Don't hesitate to reach out to me:
 
 -   **LinkedIn**: [https://www.linkedin.com/in/mukhlis-nur-arif-47339b30a](https://www.linkedin.com/in/mukhlis-nur-arif-47339b30a)
--   **Email**: [mukhlisnurarif.13@gmail.com](mailto:mukhlisnurarif.13@gmail.com)
+-   **Email**: [sinnprojek@gmail.com](mailto:sinnprojek@gmail.com)
 
 <p align="center">
   Thanks for visiting!
